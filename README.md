@@ -1,1 +1,1 @@
-#Paulo Renan Barroso Guerra e Pedro Ludovic Nascimento Lima
+Paulo Renan Barroso Guerra e Pedro Ludovic Nascimento Lima
